@@ -10,7 +10,7 @@
 2. BattleBit Лицензия - https://key-game.com/case/battlebit-remastered
 3. Big Byz Wars ключ - https://key-game.com/case/big-byz-wars
 4. Купить Rust - https://key-game.com/case/rust
-5. Foxhole - https://key-game.com/case/foxhole
-6. Rounds - https://key-game.com/case/rounds
+5. Foxhole дешево - https://key-game.com/case/foxhole
+6. Rounds ключ - https://key-game.com/case/rounds
 
 Скорее заходи и выигрывай!🚀

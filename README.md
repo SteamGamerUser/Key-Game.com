@@ -1,4 +1,4 @@
-# KeyGame
+# Key-Game
 Купить Steam ключи дешево https://key-game.com
 
 Все игры стим https://key-game.com/cases/all-games

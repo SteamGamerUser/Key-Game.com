@@ -12,5 +12,6 @@
 4. Купить Rust - https://key-game.com/case/rust
 5. Foxhole дешево - https://key-game.com/case/foxhole
 6. Rounds ключ - https://key-game.com/case/rounds
+7. Swat 4 по акции - https://key-game.com/case/swat-4
 
 Скорее заходи и выигрывай!🚀
